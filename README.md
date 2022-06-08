@@ -1,5 +1,2 @@
 # mcd-save-editor
-leaks
-
-
-mama pls mcd
+all mcd save editor versions publically some patreon exclusive
